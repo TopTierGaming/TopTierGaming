@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @TopTierGaming
+- im new lol if you guys have any tips and yea bye!!!
